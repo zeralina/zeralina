@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on some pet projects for portfolio
 - 📫 How to reach me tg: zeralinches
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: Love lifting at the gym
+- ⚡ Fun fact: Gym lover
 
 <!---
 zeralina/zeralina is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
