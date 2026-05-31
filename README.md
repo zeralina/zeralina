@@ -1,2 +1,2 @@
 Lead Product Analyst
-HSE Data Science Masters student
+| HSE Data Science Masters student
